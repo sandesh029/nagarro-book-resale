@@ -1,0 +1,1 @@
+# nagarro-book-resale
